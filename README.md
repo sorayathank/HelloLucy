@@ -1,0 +1,2 @@
+# HelloLucy
+www.lucysummerjewelry.com
